@@ -1,0 +1,2 @@
+# dasturchi
+dasturlash
